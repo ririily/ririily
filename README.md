@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ririily
 - 👀 I’m interested in foreign cultures
 - 🌱 I’m currently learning how to use github
-- 💞️ I’m looking to collaborate on big companies
+- 💞️ I’m looking to collaborate on smart people
 - 📫 How to reach me call 17680789625
 
 <!---
